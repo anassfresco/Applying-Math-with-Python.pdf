@@ -1,1 +1,1 @@
-# Applying-Math-with-Python.pdf
+# Applying-Math-with-Python free.pdf
